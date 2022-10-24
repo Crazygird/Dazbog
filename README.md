@@ -2,4 +2,4 @@
 ajlkdsj
 
 
-http://wordscapesgame.com/wordscapes-online
+https://apps.facebook.com/wordscapes/
